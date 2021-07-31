@@ -18,4 +18,4 @@
 
 O que estou achando do curso ?
 
-Muito interessante!
+Muito complexo, não consegui fazer. fala que meu usuario não é reconhecido, não consigo fazer commii pela minha maquina.
